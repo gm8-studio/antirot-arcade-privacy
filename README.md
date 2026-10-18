@@ -1,0 +1,1 @@
+# antirot-arcade-privacy
